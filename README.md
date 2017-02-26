@@ -4,5 +4,7 @@ My life began with challenges that most people's don't, and some can't bring the
 
 In as small a nutshell as I'm able, an overview is needed here. My father is extremely mentally ill, so much so that he feared being diagnosed and so never sought help. He successfully hid his illnesses, or they hadn't fully developed, until after his marriage to my mother, which was expected. Both being raised in ultraconservative Roman Catholic families in the same parish and parochial schools, they believed in the traditional roles of husband and wife prevalent in the 1940's and in large families.
 
-By the time I was born as the 6th of their 7 children some 12 years later, my father's bipolar disorder and narcissism had taken hold, and my mother had become a functional alcoholic. My birth, in 1959, had its difficulties, the main one being that my feet had hooked on my mother's pelvis while I was turning for birth, causing defects in my legs. He also interpreted a birthmark on my forehead as "the mark of Caine," proving I was inherently evil. 
+By the time I was born as the 6th of their 7 children some 12 years later, my father's bipolar disorder and narcissism had taken hold, and my mother had become a functional alcoholic. My birth, in 1959, had its difficulties, the main one being that my feet had hooked on my mother's pelvis while I was turning for birth, causing defects in my legs. His narcissism wouldn't allow a child of his to be imperfect so he denied his paternity of me.  He also interpreted a birthmark on my forehead as "the mark of Caine," proving I was inherently evil. Those two ideas merged, I believe allowing for him to justify the incest, torture and brainwashing I experienced, especially during my first seven years. 
+
+
 
